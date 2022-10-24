@@ -1,0 +1,5 @@
+Sources from Flickr.com 
+All photos were taken from Flickr.com and were free to use 
+https://www.flickr.com/photos/whitehouse/52245280753/in/photolist-2nAJHLD-2nAMcrg-2nADEpx-2nAJHLP-2nnSPzk-2noBSQx-2no2g5t-2nAJHKg-2nAMcFK-2nqyYup-DjpzF4-2noj4S4-2nBUfjw-2nADKEN-2noDLVJ-2nogDH9-ackmXQ-2nqUmpd-7Tx3yN-2nryQjD-2nrnSg1-2noHEzm-2nGtHLM-2noDLV3-2noHEzB-2noBSQN-2nqWTnf-2nrnS6M-2noAN63-2noRwRx-2noNVdy-2noQbzr-2noRwRn-2noRwR7-2noDLWL-2novV2r-2noRwR2-2novV21-2nsFPbc-2noHEAZ-2noHEA3-2nnPqkM-2novnb7-2noBkGj-2npRLof-24sBGag-8CtKhj-2nBUjzY-2nBUjzx-2noRwPZ
+https://www.flickr.com/photos/greenpeaceusa09/52110811865/
+https://www.flickr.com/photos/fabola/25427251787/in/photolist-EJVj5T-gfYhUZ-2i9YZT2-JSQRiZ-2nwmwmR-5YK2Je-23ja9Cu-78NL36-2jGyRTD-MjYmiQ-dB7KR6-23CwqHW-2mZ3FSG-2nq16uC-2noBkGQ-2nw7UXg-2noiB2i-dDYF5J-2kR7MYE-dBdZn7-6zNXCw-pLVXQP-EJVepR-2na1Zcv-GgbGTw-23jaacA-oTjDdo-pZdzDf-XxXRAc-GgbHjS-EJVcmT-GgbKDm-232K2Vr-2mbzV9v-EJV5UK-dBe1yu-EJVd3T-EJV5qP-2nmbeR2-dCF22P-232K2Ai-dBeDq7-GgbFtY-2nwjaqE-dCPvB7-GgbLj9-2noTZqM-Ggbtxy-gAc1eN-26Q6AQQ
